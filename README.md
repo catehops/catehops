@@ -1,1 +1,1 @@
-_Love is the key, open the door._
+_Love Not Fear._
