@@ -1,1 +1,1 @@
-_Love Not Fear._
+_Be kind to every kind._
