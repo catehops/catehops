@@ -1,1 +1,1 @@
-_Be kind to every kind._
+_Everyone was born to be free._
